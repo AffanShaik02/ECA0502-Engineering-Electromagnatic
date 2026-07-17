@@ -1,1 +1,0 @@
-# ECA0502-Engineering-Electromagnatic
